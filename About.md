@@ -1,0 +1,1 @@
+ I’m Akshara Dabade, a third-year Computer Engineering student. I’m interested in software development and learning new technologies. I enjoy coding, building projects, and improving my technical skills. My goal is to become a skilled software developer.
